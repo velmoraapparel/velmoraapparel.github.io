@@ -1,1 +1,0 @@
-# velmoraapparel.github.io
